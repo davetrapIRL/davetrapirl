@@ -1,16 +1,29 @@
-## Hi there 👋
+ ⫘⫘⫘ David/Dave ⫘⫘⫘
+ 
+݁ ˖Ი𐑼⋆ whisper to talk, Im usually offtab
 
-<!--
-**davetrapIRL/davetrapirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+it/its (˶◝ ⩊ ◜˶) DSaF & Bendy r my #1 interests
 
-Here are some ideas to get you started:
+I love meeting new people! Come say hi!!  ꉂ(˵˃ ᗜ ˂˵)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="500" height="500" alt="davetrap dsaf art by heralyce on deviantart" src="https://github.com/user-attachments/assets/11aca11e-c1a8-4c79-8b3c-ccb6b9d641eb" />
+
+જ⁀➴
+
+ ꕤ I do art, though I'm terrible at digital.
+
+ radqueer, terfs, racists, anti-woke, & proshippers are not welcome. Ი︵𐑼 basic dni list
+ 
+ I love all things rabbit or hare!! They're my favourite animal family!
+ 
+ 
+ <img width="500" height="500" alt="coolcat dsaf art by heralyce on deviantart" src="https://github.com/user-attachments/assets/f9aa94a7-b6a2-4e28-8753-125daf9c0037" />
+!
+
+⬩➤ my preferences on names & pronouns change a lot, so I dont expect the average person to care. David and masc pronouns work just fine
+
+Please forgive me. I'm borderpolar and have identity issues! (ᵕ— ᴗ —)
+
+this isn't an excuse for my actions btw!! PLEASE tell me if i do something to upset or discomfort you. i can handle discussions and boundaries
+ 
+[imgs by heralyce on deviantart]
