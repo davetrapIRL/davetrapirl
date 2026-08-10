@@ -6,7 +6,8 @@ it/its (˶◝ ⩊ ◜˶) DSaF & Bendy r my #1 interests
 
 I love meeting new people! Come say hi!!  ꉂ(˵˃ ᗜ ˂˵)
 
-<img width="500" height="500" alt="davetrap dsaf art by heralyce on deviantart" src="https://github.com/user-attachments/assets/11aca11e-c1a8-4c79-8b3c-ccb6b9d641eb" />
+<img width="894" height="894" alt="coolcat drawing by heralyce on deviantart" src="https://github.com/user-attachments/assets/82d2ad17-9abf-44d9-a8a7-f76a4dafdaae" />
+
 
 જ⁀➴
 
@@ -17,7 +18,8 @@ I love meeting new people! Come say hi!!  ꉂ(˵˃ ᗜ ˂˵)
  I love all things rabbit or hare!! They're my favourite animal family!
  
  
- <img width="500" height="500" alt="coolcat dsaf art by heralyce on deviantart" src="https://github.com/user-attachments/assets/f9aa94a7-b6a2-4e28-8753-125daf9c0037" />
+<img width="894" height="894" alt="davetrap by_heralyce on deviantart" src="https://github.com/user-attachments/assets/2b7ac7bc-925a-4f6a-ba85-7808e3925c9d" />
+
 !
 
 ⬩➤ my preferences on names & pronouns change a lot, so I dont expect the average person to care. David and masc pronouns work just fine
