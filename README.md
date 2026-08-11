@@ -1,6 +1,9 @@
  ⫘⫘⫘ David/Dave ⫘⫘⫘
  
-݁ ˖Ი𐑼⋆ whisper to talk, Im usually offtab
+ <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fdavetrapirl"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fdavetrapirl&labelColor=%23d8acc4&countColor=%23000000&style=flat" /></a>
+
+ 
+݁˖Ი𐑼⋆ whisper to talk, Im usually offtab
 
 it/its (˶◝ ⩊ ◜˶) DSaF & Bendy r my #1 interests
 
