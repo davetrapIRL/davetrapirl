@@ -9,6 +9,8 @@ it/its (˶◝ ⩊ ◜˶) DSaF & Bendy r my #1 interests
 
 I love meeting new people! Come say hi!!  ꉂ(˵˃ ᗜ ˂˵)
 
+c+h always ok!
+
 <img width="500" height="500" alt="coolcat drawing by heralyce on deviantart" src="https://github.com/user-attachments/assets/82d2ad17-9abf-44d9-a8a7-f76a4dafdaae" />
 
 
